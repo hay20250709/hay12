@@ -10,4 +10,4 @@
 
 在这些资源平台上，用户可以找到多种类的影片，包括国产、日韩等高清资源。每个视频提供清晰度、演员、时长等详细信息，确保用户可以体验流畅的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay12 ）</span>
